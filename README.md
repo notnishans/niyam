@@ -1,1 +1,1 @@
-# niyam
+# niya
